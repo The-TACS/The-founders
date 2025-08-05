@@ -5,7 +5,7 @@
 
 ## 👩‍💻 Founder: Sakshi Chilkoti
 
-[LinkedIn](https://www.linkedin.com/in/sakshi-chilkoti-278252285/) • [GitHub](https://github.com/SakshiChilkoti) • [Resume](https://drive.google.com/file/d/1HEJq3xNQgp651Zm4E26HCNkGEyi9PI8Z/view?usp=sharing) (sakshichilkotibusiness@gmail.com)  (+91 7906286301) 
+[LinkedIn](https://www.linkedin.com/in/sakshi-chilkoti-278252285/) • [Resume](https://drive.google.com/file/d/1HEJq3xNQgp651Zm4E26HCNkGEyi9PI8Z/view?usp=sharing) (sakshichilkotibusiness@gmail.com)  (+91 7906286301) 
 
 
 > *“I bridge creativity and code to craft meaningful, inclusive digital experiences.”*
@@ -48,7 +48,7 @@
 
 ## 👨‍💻 Co-Founder: Ayush Tiwari
 
-[LinkedIn](https://www.linkedin.com/in/ayush-tiwari-67b904308/) • [GitHub](https://github.com/Ayush-103) • [Resume](https://drive.google.com/file/d/1bMvF7Jswsn-p56CkalezyJOEI2OennHC/view?usp=sharing)
+[LinkedIn](https://www.linkedin.com/in/ayush-tiwari-67b904308/) • [Resume](https://drive.google.com/file/d/1bMvF7Jswsn-p56CkalezyJOEI2OennHC/view?usp=sharing)
  (ayushtiwari2195@gmail.com)  (+91 9369483256) 
 
 
